@@ -5,3 +5,5 @@
 >> Ibiyemi Wasilat Olamide
 >* 25 yrs
 >* 5'8
+>* Dark Skinned
+>
